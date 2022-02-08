@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HaydenR52
+- 👀 I’m interested in spectator sports and entertainment
+- 🌱 I’m currently learning how to start my career in the industry
+- 💞️ I’m looking to collaborate on projects with future team members.
+- 📫 Email: HaydenRPro@gmail.com 
